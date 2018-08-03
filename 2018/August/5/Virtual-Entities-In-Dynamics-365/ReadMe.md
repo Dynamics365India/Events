@@ -21,7 +21,7 @@
 
 >  **Date :** August 5, 2018 
 > 
-> **Time :** 4:00PM-5:30PM 
+> **Time :** 4:00PM-5:30PM IST(+5:30)
  
 ### Webinar URL
 
